@@ -25,17 +25,7 @@ Aqui estão algumas de minhas habilidades, obtidas tanto em minha formação aca
 
 </div><br/>
 
----
 
-## Meus Projetos Destacados
-
-Aqui estão alguns dos meus principais projetos,onde pude agregar muito utiliando de meus conhecimentos e habilidades
-
-1. Ório - Trabalho de Conclusão de Curso (Disponível em Breve).
-2. Projeto  - Disponível em Breve.
-3. Projeto  - Disponível em Breve.
-
----
 
 ## Como Entrar em Contato
 
